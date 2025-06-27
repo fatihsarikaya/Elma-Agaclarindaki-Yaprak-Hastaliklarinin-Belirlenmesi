@@ -1,0 +1,1 @@
+# Elma-Agaclarindaki-Yaprak-Hastaliklarinin-Belirlenmesi
